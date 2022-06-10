@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on whatever I can help with and not screw up!
 - 📫 How to reach me signum email
 - Grandpa Joe is my senior rescue: 14 years old, blind, and wonderful
+- How do I add emoticons? Always something to learn. 
 
 <!---
 SDillon23/SDillon23 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
