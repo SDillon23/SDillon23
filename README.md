@@ -1,3 +1,4 @@
+![DSC_0089](https://user-images.githubusercontent.com/107084442/172970114-78b29ea4-13f9-44b8-b52c-a45f333b81dd.jpg)
 - 👋 Hi, I’m @SDillon23
 - 👀 I’m interested in learning about digital humanities
 - 🌱 I’m currently learning from James Tauber at Signum U
